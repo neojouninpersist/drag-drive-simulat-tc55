@@ -1,4 +1,4 @@
-
+Experience drag drive simulator like never before with no-ban Script for drag drive simulator, the #1 Script. Includes speed and auto-sell for
 
 
 
